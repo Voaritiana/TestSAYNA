@@ -1,1 +1,1 @@
-Cette projet est conçus speceialement pour le teste de SAYNA
+Ce projet est conçu speceialement pour le teste de SAYNA
